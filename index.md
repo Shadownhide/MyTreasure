@@ -1,15 +1,15 @@
 <h1>Welcome to My World!</h1> 
 I have gone through this world for 22 years and I also got many good and bad treasure in the process.
 <h2> Good treasure </h2>
-1.Favourite sports
-2.Crush hard on someone
-3.Work with heart and soul on somethings
-4.Get a good relationship
+1. Favourite sports
+2. Crush hard on someone
+3. Work with heart and soul on somethings
+4. Get a good relationship
  <h2> Bad Treasure </h2>
-1.Inevitable to end a friendship
-2.Failure on something
-3.Lose the direction in life
-4.Alone
+1. Inevitable to end a friendship
+2. Failure on something
+3. Lose the direction in life
+4. Alone
  
 During primary school period, I hurt many people unconsciously and also get hurt from many people. Life always against you to move forward, that means when you feel tired and tough in the life which mean you are move forward in your life, so do not torture yourself and be confident. But if you feel tired and exhausted in your life, I recommend you the **ROPLEX CHICKEN ESSENCE** 
 
